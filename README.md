@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @CloWilso or Chloe!
+- 👀 I’m interested in athletics and lifting. 
+- 🌱 I’m currently learning Cyber Security at a four year university. 
+- 💞️ I’m looking to collaborate on computer science and cyber security projects, or anything fun to practice!
+- 📫 You can reach me at my email chloewilso.cw@gmail.com!
+- 
